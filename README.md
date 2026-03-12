@@ -31,7 +31,7 @@
 
 ### 📫 Contact Me
 - **Email:** [yusufcan.kurtulan@gmail.com](mailto:yusufcan.kurtulan@gmail.com)
-- **LinkedIn:** [Yusufcan Kurtulan](https://linkedin.com/in/yusufcankurtulan)
+- **LinkedIn:** [Yusufcan Kurtulan](https://www.linkedin.com/in/yusufcan-kurtulan/)
 - **Instagram:** [@yusufcankurtulan](https://instagram.com/yusufcankurtulan)
 - ⚡ **Fun fact:** I’m also a guitarist and a streamer on [Kick.com](https://kick.com).
 
